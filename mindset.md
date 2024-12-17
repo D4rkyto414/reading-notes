@@ -1,2 +1,4 @@
 Growth Mindset
-El "Growth Mindset" o mentalidad de crecimiento es la creencia de que las habilidades, la inteligencia y el talento pueden desarrollarse con esfuerzo, aprendizaje constante y perseverancia. 
+
+
+El Growth Mindset es la idea de que nuestras habilidades y talentos pueden desarrollarse con esfuerzo, aprendizaje y persistencia. Implica creer que no estamos limitados por lo que sabemos o hacemos hoy, sino que podemos mejorar constantemente a través de la práctica y la superación de desafíos.
