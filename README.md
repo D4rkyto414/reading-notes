@@ -1,4 +1,4 @@
-# reading-notes
+# [reading-notes](https://github.com/D4rkyto414/reading-notes/edit/main/README.md)
 # Adriano Perez
 
 ![WhatsApp Image 2024-12-16 at 9 10 06 PM](https://github.com/user-attachments/assets/40f2eab7-7aa7-4242-94cc-7b9d4b7d4217)
